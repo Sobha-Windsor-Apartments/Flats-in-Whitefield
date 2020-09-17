@@ -1,2 +1,1 @@
-# Flats-in-Whitefield
-Sobha Windsor Whitefield Bangalore Coming Soon to be a New Landmark address. 
+<a href="https://www.sobhawindsor.gen.in/location-map.html">Sobha Windsor Whitefield</a> is One Of the prime location in Bangalore and is located in the East part Of Bangalore. Whitefield is one of the Most valuable micro market in India in Terms of Real Estate Sector. It is the IT hub of Bangalore where most Of The Companies are operational. As far as The Connectivity is Concerned it is Well Connected to the Other part of Bangalore. 
